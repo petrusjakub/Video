@@ -1,179 +1,293 @@
 # PROPOSAL BISNIS - YOUTUBE PLAYLIST (5 VIDEO)
 
-## Format: YouTube Playlist | Durasi per video: Maks 3 menit
-## Bahasa: Indonesia
+## Format: YouTube Playlist | Durasi per video: Maks 5 menit
+## Bahasa: Indonesia (Clickbait & Curiosity-Driven)
+## Presenter: Petrus Jakub (Pak Petrus)
 ## Visual: Masing-masing video menggunakan 1 gambar (1.png s/d 5.png) sebagai latar visual
+## Target Audience: Pekerja Kantoran, Ibu Rumah Tangga, Fresh Graduate, Pebisnis, Freelancer, Profesional
 
 ---
 
-## VIDEO 1: RAHASIA PENGHASILAN PASIF YANG TIDAK DIAJARKAN DI SEKOLAH
-**File Visual:** 1.png 
-**Durasi:** ~2:30 - 3:00 menit
+## VIDEO 1: "YAKIN MAU KERJA SEUMUR HIDUP? INI ENDING GAME YANG SEBENARNYA!"
+**File Visual:** 1.png
+**Durasi:** ~4:00 - 5:00 menit
+**Topik:** Ending dari pekerjaan - Passive Income sebagai tujuan akhir
 
 ### SCRIPT:
 
-"Stop. Sebelum Anda scroll lagi, saya mau tanya satu hal:
+"Halo bapak ibu, bila bapak ibu menerima video ini berarti ada tim kami yang memberikan proposal bisnis ini. Anggap saja ini adalah proposal bisnis di mana saya melakukan sebuah tender kepada bapak ibu. Langsung saja, ini adalah proposal bisnis yang saya ajukan kepada bapak ibu sekalian.
 
-Berapa lama lagi Anda mau bangun pagi, macet-macetan, kerja 8 jam, pulang capek... dan gaji habis di tanggal 25?
+Point pertama adalah: dalam berbisnis itu apa ujungnya, apa endingnya? Kalau bicara dalam dunia pekerjaan, endingnya apakah mencapai posisi direktur?
 
-Kalau Anda pekerja kantoran yang mulai jenuh, ibu rumah tangga yang ingin punya penghasilan sendiri, fresh graduate yang bingung mau mulai dari mana, freelancer yang capek kejar deadline, atau pebisnis yang pengen income tambahan tanpa ribet...
+Bolehkah saya bertanya, apa sih ending di dalam pekerjaan yang saat ini bapak ibu lakukan?
 
-Video ini dibuat khusus untuk Anda.
+*(jeda)*
 
-Saya tidak akan jual mimpi. Tapi saya akan tunjukkan sebuah SISTEM yang sudah terbukti menghasilkan passive income dari 4 sumber berbeda. Ya, Anda tidak salah dengar. EMPAT sumber penghasilan. Dari satu sistem yang sama.
+Coba pikirkan sejenak...
 
-Dan yang bikin gila? Anda hanya butuh 5 orang untuk memulainya.
+Bapak ibu yang bekerja di kantoran, coba jawab jujur: 5 tahun dari sekarang, Anda akan ada di posisi apa? 10 tahun dari sekarang? Apakah gajinya sudah cukup untuk memenuhi semua impian Anda?
 
-Cuma 5 orang. Bukan 500. Bukan 5000. Lima.
+Atau... jangan-jangan, 10 tahun dari sekarang pun Anda masih melakukan hal yang sama? Bangun pagi, macet, kerja, pulang malam, tidur, ulang lagi?
 
-Penasaran? Bagaimana mungkin cuma 5 orang bisa menghasilkan ratusan bahkan ribuan jaringan?
+Buat yang fresh graduate - selamat, Anda baru mulai. Tapi izinkan saya bertanya: Anda mau pensiun di usia berapa? 55? 60? Atau justru tidak pernah bisa pensiun karena tabungan tidak cukup?
 
-Semua akan saya bongkar di 5 video pendek ini. Masing-masing kurang dari 3 menit. Lebih singkat dari waktu Anda scrolling Instagram tanpa tujuan.
+Ibu rumah tangga - pernahkah terlintas ingin punya penghasilan sendiri tanpa harus meninggalkan keluarga?
 
-Tapi JANGAN skip satu pun. Karena setiap video saling terhubung, dan rahasia terbesarnya ada di video terakhir.
+Freelancer dan profesional - sampai kapan menukar waktu dengan uang? Kalau Anda berhenti bekerja, apakah uang masih mengalir?
 
-Siap? Langsung tonton video kedua sekarang. Di sana saya akan jelaskan konsep '5-5-5' yang bisa mengubah cara Anda melihat penghasilan selamanya."
+Pebisnis - berapa banyak modal yang sudah Anda keluarkan, dan apakah bisnisnya bisa jalan TANPA Anda?
+
+Sekarang saya mau kasih pertanyaan yang lebih menohok:
+
+**Bagaimana kalau besok Anda kena PHK?**
+
+Jangan bilang 'tidak mungkin'. Kita semua tau, PHK itu nyata. Perusahaan besar pun melakukan efisiensi. Ratusan ribu orang kehilangan pekerjaan setiap tahun.
+
+Apakah Anda punya PLAN B?
+
+Nah, kalau di dalam pekerjaan yang kami lakukan, endingnya adalah ini: **5-5-5**.
+
+Apa itu 5-5-5?
+
+Di titik ini, sudah tidak ada lagi target omset yang harus dipenuhi. Tidak ada lagi tekanan dari atasan. Tidak ada lagi alarm pagi yang menyiksa. Tapi... kita TETAP menerima passive income.
+
+Dari mana passive income tersebut? Dari produksi pribadi, unit, group, dan generasi.
+
+Endingnya adalah menjadi CO-FOUNDER. Menjadi PEMILIK bisnis. Bukan karyawan. Bukan bawahan. PEMILIK.
+
+Mau gak Anda punya passive income yang terus mengalir bahkan saat Anda tidur? Ini bukan mimpi. Ini adalah ending game yang nyata di bisnis ini.
+
+Tapi tunggu... bisnis apa sih ini? Perusahaan apa? Produknya apa? Apakah bisa dipercaya?
+
+Semua akan saya jawab di VIDEO KEDUA. Jangan kemana-mana!"
 
 ---
 
-## VIDEO 2: CUMA AJAK 5 ORANG, TAPI HASILNYA RATUSAN? INI RUMUSNYA.
-**File Visual:** 2.png 
-**Durasi:** ~2:30 - 3:00 menit
+## VIDEO 2: "PERUSAHAAN 130 TAHUN & PRODUK YANG DIBUTUHKAN SEMUA ORANG!"
+**File Visual:** 2.png
+**Durasi:** ~4:00 - 5:00 menit
+**Topik:** Perusahaan, produk, dan kredibilitas mitra bisnis
 
 ### SCRIPT:
 
-"Oke, Anda sudah di video kedua. Artinya Anda serius.
+"Anda sudah di video kedua. Bagus. Artinya Anda serius ingin tau lebih dalam.
 
-Sekarang saya tanya: Pernah dengar orang bilang 'bisnis networking itu susah, harus ajak ribuan orang'?
+Di video pertama saya sudah bicara soal ending game: passive income melalui sistem 5-5-5. Sekarang pertanyaannya:
 
-SALAH BESAR.
+**Dengan siapa kita bermitra?**
 
-Dalam sistem ini, Anda cuma perlu mengajak 5 orang. Titik. Selesai. Lima orang yang Anda kenal, yang Anda percaya, yang punya visi yang sama.
+Ini pertanyaan penting. Karena percuma punya sistem bagus kalau perusahaannya abal-abal, betul?
 
-'Lah, terus gimana bisa berkembang kalau cuma 5?'
+Menurut bapak ibu, apakah nama besar perusahaan itu penting?
 
-Nah, inilah keajaiban sistem 5-5-5. Dengarkan baik-baik:
+*(jeda)*
 
-Anda ajak 5 orang. Itu Level 1.
-Masing-masing dari mereka ajak 5 orang lagi. Itu Level 2: 25 orang.
-Dan masing-masing dari 25 orang itu ajak 5 orang lagi. Level 3: 125 orang.
+Tentu saja penting! Siapa yang mau bermitra dengan perusahaan yang baru berdiri kemarin? Yang belum teruji? Yang bisa tutup kapan saja?
 
-Total? 155 ORANG di jaringan Anda.
+Nah, sekarang bagaimana kalau saya bilang: perusahaan yang kami ajak bermitra sudah berusia **lebih dari 130 TAHUN**?
 
-Tapi ingat: Anda secara pribadi HANYA perlu bicara ke 5 orang. Sisanya? Duplikasi. Sistem yang bekerja untuk Anda.
+Ya, Anda tidak salah dengar. SERATUS TIGA PULUH TAHUN. Perusahaan ini sudah ada bahkan sebelum Indonesia merdeka. Sudah melewati perang dunia, krisis ekonomi, pandemi - dan masih berdiri kokoh sampai hari ini.
 
-Coba pikir: siapa 5 orang di hidup Anda yang mungkin juga ingin punya penghasilan tambahan? Teman kantor? Tetangga? Mantan rekan kuliah? Saudara?
+Coba pikirkan: perusahaan apa yang bisa bertahan 130 tahun kalau produknya tidak dibutuhkan orang?
 
-Hanya 5. Itu tugas Anda. Sisanya, biar sistem yang bicara.
+Sekarang soal produknya. Pertanyaan saya:
 
-'Oke, jaringannya jelas. Tapi duitnya dari mana?'
+**Apakah produk ini dibutuhkan oleh SEMUA orang?**
 
-PERTANYAAN BAGUS. Dan jawabannya ada di video ketiga. Saya akan bongkar 4 sumber penghasilan yang akan mengalir ke rekening Anda. Jangan kemana-mana!"
+Jawabannya: YA. Dari ekonomi bawah sampai ekonomi atas, semua bisa menjadi peserta. Nominalnya variatif - ada yang terjangkau untuk semua kalangan, ada juga yang premium.
+
+Seberapa besar kepercayaan masyarakat? Bahkan ada nasabah yang mempercayakan financial-nya sebesar **33 MILIAR rupiah**. Atau setara **2 JUTA US Dollar**. Apakah orang mau menaruh uang sebesar itu di perusahaan yang tidak kredibel? Tentu tidak.
+
+Dan satu hal lagi yang menarik...
+
+Kita semua tau bahwa market Indonesia itu 90 persen adalah syariah. Nah, perusahaan ini bahkan sudah menyediakan **produk syariah**! Artinya, market kita LUAS sekali. Tidak terbatas agama, tidak terbatas usia, tidak terbatas ekonomi.
+
+Jadi mari kita recap:
+- Perusahaan berusia 130+ tahun ✓
+- Produk dibutuhkan semua orang ✓
+- Dari ekonomi bawah sampai atas bisa ikut ✓
+- Ada produk syariah ✓
+- Terbukti dipercaya hingga miliaran rupiah ✓
+
+'Oke Pak Petrus, perusahaannya hebat. Produknya bagus. TAPI... saya kan tidak punya pengalaman. Saya tidak tau cara jualan. Saya bukan orang sales.'
+
+Tenang. Itu wajar. Dan justru itulah yang akan saya bahas di VIDEO KETIGA: bagaimana support sistem kami bisa membuat SIAPA PUN - bahkan yang tidak punya pengalaman sama sekali - bisa berhasil di bisnis ini.
+
+Penasaran? Lanjut ke video berikutnya!"
 
 ---
 
-## VIDEO 3: 4 SUMBER UANG MENGALIR KE REKENING ANDA (INI YANG BIKIN ORANG KAGET)
-**File Visual:** 3.png 
-**Durasi:** ~2:30 - 3:00 menit
+## VIDEO 3: "GAK PUNYA PENGALAMAN? TENANG, SEMUA SUDAH DISIAPKAN!"
+**File Visual:** 3.png
+**Durasi:** ~4:00 - 5:00 menit
+**Topik:** Support sistem, bonus, dan pembuktian duplikasi
 
 ### SCRIPT:
 
-"Video ketiga. Di sinilah semua mulai masuk akal.
+"Video ketiga. Dan saya yakin di kepala bapak ibu sekarang ada satu pertanyaan besar:
 
-Kebanyakan orang punya SATU sumber penghasilan: gaji. Kalau dipecat? Habis. Kalau sakit? Nol.
+'Pak Petrus, saya TIDAK ADA pengalaman. Saya bukan orang bisnis. Saya gak tau cara rekrut. Saya gak pinter ngomong.'
 
-Sekarang bayangkan kalau Anda punya EMPAT sumber penghasilan yang berjalan BERSAMAAN. Kebayang kan bedanya?
+TENANG.
 
-Ini dia 4 aliran uang dalam sistem ini:
+Saya mau bilang sesuatu yang mungkin mengejutkan Anda:
 
-**PERTAMA: Produksi Pribadi.**
-Ini langkah pertama. Anda pakai produknya, Anda dapat komisi. Sesederhana itu. Tidak perlu jago jualan. Tidak perlu ketuk pintu rumah orang.
+**Semua sudah disiapkan. Tinggal mau menjalankan atau tidak.**
 
-**KEDUA: Bonus Unit.**
-5 orang di level 1 Anda aktif? Selamat, bonus unit masuk. Ini reward karena Anda sudah membangun tim kecil yang solid.
+Ya, sesederhana itu.
 
-**KETIGA: Bonus Group.**
-Nah, ini mulai seru. Ketika 25 orang di level 2 dan 125 orang di level 3 juga bergerak... bonus group Anda MELEDAK. Ini uang yang datang dari aktivitas ratusan orang di jaringan Anda.
+Karena begini - di bisnis ini, yang membedakan orang berhasil dan tidak itu bukan soal bakat, bukan soal pengalaman, bukan soal ijazah. Tapi soal SISTEM dan SUPPORT.
 
-**KEEMPAT: Bonus Generasi.**
-Yang ini? Ini level sultan. Ketika orang-orang di jaringan Anda juga jadi leader dan punya tim sendiri... Anda tetap dapat bagian. TANPA kerja lagi. Ini benar-benar passive income. Uang masuk saat Anda tidur, saat Anda liburan, saat Anda tidak melakukan apa-apa.
+Dan di sinilah kelebihan kami.
 
-4 aliran. 1 sistem. Dan semua dimulai dari 5 orang.
+**Agency kami adalah NOMOR 1 di perusahaan.**
 
-Tapi... berapa sih angkanya? Ratusan ribu? Jutaan? Puluhan juta?
+Saya ulang: NOMOR SATU. Bukan nomor dua, bukan nomor sepuluh. NOMOR SATU.
 
-Saya bongkar proyeksi penghasilannya di video keempat. Dan percaya saya, angkanya mungkin akan membuat Anda berpikir ulang tentang pekerjaan Anda sekarang."
+Apa artinya?
+
+Artinya sistem yang kami gunakan TERBUKTI berhasil. Bukan teori. Bukan janji manis. Tapi FAKTA. Sudah terbukti mampu menduplikasi mitra dari berbagai latar belakang.
+
+Bagaimana dengan bonus dan rewards-nya?
+
+Beragam bonus rewards yang MUDAH dicapai. Bukan target mustahil yang bikin stres. Tapi target yang realistis, yang bisa dicapai oleh siapa pun yang konsisten.
+
+Lalu bagaimana dengan training-nya?
+
+Kami punya sistem training yang LENGKAP. Step by step. Dari nol sampai bisa jalan sendiri. Anda tidak akan dibiarkan sendirian. Tidak akan dibiarkan bingung. Semua ada panduannya.
+
+Sekarang saya mau jujur:
+
+**Kami TIDAK bilang ini adalah jalan cepat menjadi kaya.**
+
+Tidak. Ini bukan skema cepat kaya. Ini bukan sulap. Ini BISNIS nyata yang butuh usaha nyata.
+
+NAMUN - jika kita serius menjalankannya, maka ini adalah KENDARAAN yang tepat untuk memiliki passive income. Kendaraan yang sudah teruji, yang sudah membawa banyak orang mencapai financial freedom.
+
+Pertanyaannya sekarang: Anda mau naik kendaraan ini, atau mau tetap jalan kaki?
+
+'Oke Pak Petrus, sistemnya ada. Training-nya ada. Tapi siapa yang akan bimbing saya? Siapa leader-nya? Siapa mentornya?'
+
+Pertanyaan SANGAT bagus. Dan jawabannya ada di VIDEO KEEMPAT. Saya jamin, setelah nonton video berikutnya, keraguan Anda akan semakin berkurang.
+
+Lanjut!"
 
 ---
 
-## VIDEO 4: SEGINI PENGHASILAN YANG BISA ANDA DAPAT (SIMULASI NYATA)
-**File Visual:** 4.png 
-**Durasi:** ~2:30 - 3:00 menit
+## VIDEO 4: "MENTOR BERPENGALAMAN + SENJATA PERANG DIGITAL GRATIS!"
+**File Visual:** 4.png
+**Durasi:** ~4:00 - 5:00 menit
+**Topik:** Mentor, leader, tools digital, dan kemudahan teknologi
 
 ### SCRIPT:
 
-"Oke. Ini video yang paling banyak ditanya: BERAPA penghasilannya?
+"Video keempat. Dan topik kali ini adalah sesuatu yang SANGAT penting tapi sering dilupakan orang:
 
-Saya tidak akan kasih angka mengawang-awang. Saya tunjukkan logikanya:
+**MENTOR dan LEADER.**
 
-Dari produksi pribadi: Anda sudah dapat penghasilan dasar setiap bulan. Anggap ini uang jajan tambahan.
+Bapak ibu, Anda bisa punya sistem terbaik di dunia. Tapi kalau tidak ada orang yang membimbing, yang mengarahkan, yang memberi contoh nyata... maka hasilnya akan jauh dari maksimal.
 
-Dari bonus unit: 5 orang aktif di level 1? Penghasilan Anda BERLIPAT. Bukan nambah sedikit, tapi berlipat.
+Dan di sinilah kita BERSYUKUR.
 
-Dari bonus group: 155 orang di jaringan Anda aktif? Di sinilah angkanya jadi SERIUS. Ini bukan lagi uang tambahan, ini bisa jadi penghasilan utama Anda.
+Kenapa? Karena kita berada di TIM YANG TEPAT.
 
-Dari bonus generasi: Ini... ini yang bikin orang quit dari kerjaan 9-to-5 mereka. Karena uangnya datang TERUS. Bahkan saat Anda berhenti kerja aktif. Bayangkan: bangun pagi tanpa alarm, cek HP, dan lihat transferan masuk.
+Mentor kami sudah berpengalaman membangun mitra bisnis di seluruh penjuru nusantara. Bukan cuma di satu kota. Bukan cuma di Jawa. Tapi se-INDONESIA. Dari Sabang sampai Merauke.
 
-'Tapi kan ini butuh kerja keras di awal?'
+Leader kami berprestasi dan TAJAM di market. Artinya? Mereka bukan leader yang cuma bisa ngomong, tapi mereka LEAD BY EXAMPLE. Mereka buktikan dulu, baru mereka ajarkan.
 
-YA. Tentu saja. Tidak ada yang instan di dunia ini. Anda perlu ajak 5 orang. Anda perlu bimbing mereka. Anda perlu konsisten di 3-6 bulan pertama.
+Anda akan dibimbing oleh orang-orang yang SUDAH berhasil, bukan orang yang masih coba-coba.
 
-TAPI setelah sistemnya berjalan? Anda sudah membangun ASET. Bukan kerja harian. ASET. Seperti punya gedung kos yang uangnya masuk tiap bulan tanpa Anda harus ngepel lantai sendiri.
+Sekarang, ada satu hal lagi yang tidak kalah penting...
 
-Ini bedanya pekerja dan pemilik bisnis: Pekerja dibayar per JAM. Pemilik bisnis dibayar per SISTEM yang dibangun.
+**Bagaimana dengan persenjataan perang?**
 
-Anda mau yang mana?
+Maksud saya: tools, alat bantu, media promosi - apa yang kita gunakan untuk menjalankan bisnis ini di era digital?
 
-Kalau jawaban Anda adalah yang kedua, video terakhir ini WAJIB Anda tonton. Di sana saya jelaskan posisi akhir Anda, dan bagaimana cara mulai HARI INI."
+Dengarkan ini baik-baik:
+
+Jaman sudah berubah. Kita tidak perlu lagi ketuk pintu rumah orang satu-satu. Kita tidak perlu lagi cetak brosur ribuan lembar. Semua kemudahan dan kecanggihan teknologi, kita MANFAATKAN dengan maksimal.
+
+Tools duplikasi? Kami sediakan secara **GRATIS**.
+
+Ya, GRATIS. Anda tidak perlu keluar uang tambahan untuk alat-alat kerja digital.
+
+Dan untuk urusan administrasi? Kita serahkan kepada admin yang sudah berpengalaman. Anda FOKUS pada hal yang menghasilkan. Urusan teknis? Biar tim yang handle.
+
+Jadi bayangkan:
+- Mentor berpengalaman ✓
+- Leader yang lead by example ✓
+- Tools digital GRATIS ✓
+- Admin support ✓
+- Teknologi terkini ✓
+
+Semua sudah tersedia. Semua sudah disiapkan.
+
+Tapi... ada SATU hal lagi yang membuat tim kami BERBEDA dari tim lain. Sesuatu yang sangat spesial. Dan juga ada momentum yang kalau Anda lewatkan, mungkin akan menyesal.
+
+Semuanya saya ungkap di VIDEO TERAKHIR. Video kelima. Ini video yang paling penting. JANGAN sampai Anda tidak menontonnya!"
 
 ---
 
-## VIDEO 5: INI POSISI AKHIR ANDA (DAN CARA MULAI SEKARANG JUGA)
-**File Visual:** 5.png 
-**Durasi:** ~2:30 - 3:00 menit
+## VIDEO 5: "KENAPA HARUS GABUNG TIM PAK PETRUS? INI ALASANNYA + MOMENTUM LANGKA!"
+**File Visual:** 5.png
+**Durasi:** ~4:00 - 5:00 menit
+**Topik:** Keunggulan Pak Petrus, momentum, dukungan financial, dan CTA
 
 ### SCRIPT:
 
-"Anda sudah sampai di video terakhir. Dan itu artinya satu hal: Anda bukan orang biasa.
+"Video terakhir. Dan ini adalah video yang PALING penting dari seluruh playlist ini.
 
-Kebanyakan orang berhenti di video pertama. Mereka scroll. Mereka ragu. Mereka bilang 'nanti dulu.'
+Karena di sini saya akan jawab pertanyaan yang mungkin ada di benak Anda:
 
-Tapi Anda? Anda masih di sini. Itu sudah membuktikan Anda punya mentalitas yang berbeda.
+'OK Pak Petrus, semua sudah clear. Perusahaannya bagus, produknya bagus, sistemnya bagus, mentornya bagus. TAPI... kenapa saya harus gabung di tim PAK PETRUS? Apa bedanya dengan tim lain?'
 
-Sekarang, mari saya tunjukkan gambaran besarnya:
+Fair question. Dan inilah jawabannya:
 
-Anda bukan ANGGOTA. Anda bukan BAWAHAN siapa-siapa.
+Saya, Petrus Jakub, adalah mitra bisnis yang memiliki kemampuan di bidang **teknologi dan AI**.
 
-Posisi akhir Anda di sistem ini adalah: CO-FOUNDER. Pemilik bisnis.
+Apa artinya buat Anda?
 
-Anda punya jaringan 155 orang. Anda punya 4 sumber penghasilan. Anda punya sistem yang bekerja 24 jam untuk Anda. Tanpa perlu sewa kantor. Tanpa perlu gaji karyawan. Tanpa perlu modal ratusan juta.
+Artinya, saya telah membangun **Website dan sistem digital** sehingga kita dapat lebih mudah melakukan rekrut agen dan nasabah melalui media internet. Di era digital ini, siapa yang menguasai teknologi, dialah yang MENANG.
 
-Sekarang bandingkan:
-- Buka franchise? Modal ratusan juta, belum tentu balik modal 2 tahun.
-- Investasi saham? Butuh ilmu tinggi dan modal besar.
-- Kerja kantoran? Gaji mentok, karir terbatas.
+Dan SEMUA ini - website, sistem, tools AI - akan **diajarkan dan diberikan secara GRATIS** khusus untuk tim kami.
 
-Atau... Anda mulai dari sini. Modal kecil. Risiko rendah. Tapi potensi penghasilan? TIDAK TERBATAS.
+Anda tidak akan menemukan ini di tim lain. Ini adalah keunggulan kompetitif yang hanya ada di sini.
 
-Jadi pertanyaannya sekarang bukan 'apakah ini berhasil?' Pertanyaannya adalah: 'Kapan Anda mulai?'
+Bayangkan: Anda tidur, tapi website Anda bekerja 24 jam mencari prospek. Anda liburan, tapi sistem digital Anda tetap menjaring calon mitra. Ini bukan masa depan - ini sudah TERJADI di tim kami.
 
-Orang yang membagikan video ini kepada Anda sudah memulai. Mereka sudah selangkah di depan.
+Sekarang soal **MOMENTUM**.
 
-Hubungi mereka. Sekarang. Tanyakan bagaimana cara bergabung. Jangan tunda sampai besok, karena besok Anda akan sibuk lagi dengan rutinitas yang sama.
+Kenapa sekarang? Kenapa tidak tahun depan? Kenapa tidak nanti?
 
-Ambil langkah pertama HARI INI.
+Karena PASAR sedang BERTUMBUH. Market asuransi dan financial planning di Indonesia masih sangat besar. Penetrasinya masih rendah dibanding negara lain. Artinya? PELUANGNYA MASIH TERBUKA LEBAR.
 
-Terima kasih sudah menonton. Saya tunggu Anda di tim."
+Dan yang membuat ini semakin menarik...
+
+Ada **dukungan financial dari perusahaan** bagi Anda yang mau bergabung. Ada **GAJI BULANAN** di luar komisi yang bisa Anda terima. Ya, Anda tidak salah baca. GAJI BULANAN. Dari perusahaan. Di luar bonus dan komisi.
+
+Jadi Anda tidak hanya mengandalkan komisi saja. Ada income tetap yang menjadi safety net Anda di awal perjalanan.
+
+Sekarang mari kita rangkum semua yang sudah kita bahas dari video 1 sampai 5:
+
+1. Ending game: Passive income melalui sistem 5-5-5 ✓
+2. Perusahaan 130+ tahun dengan produk yang dibutuhkan semua orang ✓
+3. Support sistem lengkap, agency nomor 1 ✓
+4. Mentor berpengalaman, leader berprestasi, tools digital gratis ✓
+5. Tim dengan keunggulan teknologi & AI, plus gaji bulanan dari perusahaan ✓
+
+Semua sudah ada. Pertanyaannya tinggal SATU:
+
+**Apakah Anda siap mengambil langkah ini?**
+
+Kalau jawabannya YA - atau bahkan baru 'mungkin' - mari kita ngobrol. Tidak ada paksaan. Tidak ada tekanan. Kita diskusi dulu. Saya jelaskan lebih detail sesuai situasi dan kebutuhan Anda.
+
+**Hubungi kami lewat link di bio.**
+
+Klik link di bio sekarang, dan mari kita mulai perjalanan menuju financial freedom bersama.
+
+Jangan tunda. Karena setiap hari yang Anda lewatkan tanpa action, adalah hari di mana orang lain sudah selangkah lebih maju dari Anda.
+
+Saya Petrus Jakub, dan saya tunggu Anda di tim. Sampai jumpa!"
 
 ---
 
@@ -181,19 +295,27 @@ Terima kasih sudah menonton. Saya tunggu Anda di tim."
 
 | Video | File Visual | Durasi Target | Topik Utama |
 |-------|------------|---------------|-------------|
-| 1 | 1.png | 2:30-3:00 | Hook kuat & perkenalan konsep (rasa penasaran) |
-| 2 | 2.png | 2:30-3:00 | Sistem 5-5-5 (keajaiban duplikasi) |
-| 3 | 3.png | 2:30-3:00 | 4 sumber passive income (bongkar aliran uang) |
-| 4 | 4.png | 2:30-3:00 | Proyeksi penghasilan (simulasi nyata) |
-| 5 | 5.png | 2:30-3:00 | Penutup, posisi co-founder & call to action |
+| 1 | 1.png | 4:00-5:00 | Ending game pekerjaan, bahaya PHK, passive income 5-5-5 |
+| 2 | 2.png | 4:00-5:00 | Perusahaan 130+ tahun, produk universal, syariah |
+| 3 | 3.png | 4:00-5:00 | Support sistem, agency #1, training & duplikasi |
+| 4 | 4.png | 4:00-5:00 | Mentor & leader, tools digital gratis, teknologi |
+| 5 | 5.png | 4:00-5:00 | Keunggulan Pak Petrus (AI & tech), momentum, gaji bulanan, CTA |
 
-**Total durasi playlist:** 12-15 menit
+**Total durasi playlist:** 20-25 menit
 
-**Tips produksi:**
-- Gunakan masing-masing gambar sebagai visual statis atau dengan sedikit animasi (zoom in/out, pan)
-- Tambahkan background music yang energik dan membangun urgensi
-- Narasi direkam sebagai voiceover dengan intonasi dinamis (bukan monoton)
-- Tambahkan text overlay untuk poin-poin penting dan angka-angka kunci
-- Gunakan sound effect subtle untuk penekanan (whoosh, ding)
-- Pastikan end screen di setiap video mengarahkan ke video berikutnya dengan teks "TONTON SEKARANG"
-- Tambahkan countdown atau teaser 3 detik di akhir setiap video untuk memancing klik ke video selanjutnya
+**Gaya Penyampaian:**
+- Clickbait & curiosity-driven di setiap judul dan pembukaan
+- Banyak pertanyaan retoris untuk mengajak penonton berpikir
+- Cliffhanger di akhir setiap video untuk memancing klik ke video selanjutnya
+- Bahasa santai tapi meyakinkan, bukan bahasa formal/kaku
+- Jeda strategis setelah pertanyaan penting (beri waktu penonton berpikir)
+
+**Tips Produksi:**
+- Gunakan masing-masing gambar (1.png - 5.png) sebagai visual utama per video
+- Tambahkan background music yang membangun urgensi dan curiosity
+- Narasi oleh Pak Petrus dengan intonasi dinamis dan penuh energi
+- Text overlay untuk poin-poin kunci, angka, dan checklist
+- Sound effect untuk penekanan (whoosh pada transisi, ding pada poin penting)
+- End screen di setiap video (1-4) mengarahkan ke video berikutnya dengan teks "LANJUT TONTON SEKARANG!"
+- Video 5: end screen mengarahkan ke link di bio
+- Thumbnail setiap video harus provokatif dan memancing klik
