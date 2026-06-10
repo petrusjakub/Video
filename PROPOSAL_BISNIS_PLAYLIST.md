@@ -6,154 +6,174 @@
 
 ---
 
-## VIDEO 1: PEMBUKAAN & PERKENALAN KONSEP
+## VIDEO 1: RAHASIA PENGHASILAN PASIF YANG TIDAK DIAJARKAN DI SEKOLAH
 **File Visual:** 1.png 
 **Durasi:** ~2:30 - 3:00 menit
 
 ### SCRIPT:
 
-"Halo semuanya, terima kasih sudah meluangkan waktu untuk menonton video ini.
+"Stop. Sebelum Anda scroll lagi, saya mau tanya satu hal:
 
-Perkenalkan, saya ingin menyampaikan sebuah proposal bisnis yang menurut saya sangat menarik dan layak untuk Anda pertimbangkan.
+Berapa lama lagi Anda mau bangun pagi, macet-macetan, kerja 8 jam, pulang capek... dan gaji habis di tanggal 25?
 
-Di era digital seperti sekarang, banyak orang mencari peluang untuk mendapatkan penghasilan tambahan, bahkan penghasilan pasif yang bisa terus mengalir tanpa harus bekerja setiap hari.
+Kalau Anda pekerja kantoran yang mulai jenuh, ibu rumah tangga yang ingin punya penghasilan sendiri, fresh graduate yang bingung mau mulai dari mana, freelancer yang capek kejar deadline, atau pebisnis yang pengen income tambahan tanpa ribet...
 
-Nah, di playlist ini, saya akan menjelaskan sebuah sistem bisnis networking yang sudah terbukti, dengan konsep yang sederhana tapi powerful.
+Video ini dibuat khusus untuk Anda.
 
-Konsep ini saya sebut sebagai sistem 5-5-5. Apa itu? Bagaimana cara kerjanya? Dan bagaimana Anda bisa mendapatkan passive income dari 4 sumber sekaligus?
+Saya tidak akan jual mimpi. Tapi saya akan tunjukkan sebuah SISTEM yang sudah terbukti menghasilkan passive income dari 4 sumber berbeda. Ya, Anda tidak salah dengar. EMPAT sumber penghasilan. Dari satu sistem yang sama.
 
-Semua akan saya jelaskan secara bertahap di 5 video dalam playlist ini.
+Dan yang bikin gila? Anda hanya butuh 5 orang untuk memulainya.
 
-Jadi, pastikan Anda menonton sampai video terakhir, karena di sanalah gambaran besarnya akan terlihat jelas.
+Cuma 5 orang. Bukan 500. Bukan 5000. Lima.
 
-Mari kita mulai."
+Penasaran? Bagaimana mungkin cuma 5 orang bisa menghasilkan ratusan bahkan ribuan jaringan?
+
+Semua akan saya bongkar di 5 video pendek ini. Masing-masing kurang dari 3 menit. Lebih singkat dari waktu Anda scrolling Instagram tanpa tujuan.
+
+Tapi JANGAN skip satu pun. Karena setiap video saling terhubung, dan rahasia terbesarnya ada di video terakhir.
+
+Siap? Langsung tonton video kedua sekarang. Di sana saya akan jelaskan konsep '5-5-5' yang bisa mengubah cara Anda melihat penghasilan selamanya."
 
 ---
 
-## VIDEO 2: SISTEM 5-5-5 — CARA KERJA JARINGAN
+## VIDEO 2: CUMA AJAK 5 ORANG, TAPI HASILNYA RATUSAN? INI RUMUSNYA.
 **File Visual:** 2.png 
 **Durasi:** ~2:30 - 3:00 menit
 
 ### SCRIPT:
 
-"Di video kedua ini, saya akan menjelaskan inti dari sistem bisnis ini, yaitu konsep 5-5-5.
+"Oke, Anda sudah di video kedua. Artinya Anda serius.
 
-Apa artinya?
+Sekarang saya tanya: Pernah dengar orang bilang 'bisnis networking itu susah, harus ajak ribuan orang'?
 
-Sederhananya, Anda hanya perlu mengajak 5 orang untuk bergabung di jaringan Anda. Itu saja. Lima orang.
+SALAH BESAR.
 
-Kemudian, masing-masing dari 5 orang tersebut juga melakukan hal yang sama — mengajak 5 orang lagi.
+Dalam sistem ini, Anda cuma perlu mengajak 5 orang. Titik. Selesai. Lima orang yang Anda kenal, yang Anda percaya, yang punya visi yang sama.
 
-Dan level ketiga, masing-masing dari 25 orang itu mengajak 5 orang lagi.
+'Lah, terus gimana bisa berkembang kalau cuma 5?'
 
-Jadi strukturnya:
-- Level 1: 5 orang (langsung dari Anda)
-- Level 2: 25 orang (dari 5 orang di level 1)
-- Level 3: 125 orang (dari 25 orang di level 2)
+Nah, inilah keajaiban sistem 5-5-5. Dengarkan baik-baik:
 
-Total jaringan Anda: 155 orang.
+Anda ajak 5 orang. Itu Level 1.
+Masing-masing dari mereka ajak 5 orang lagi. Itu Level 2: 25 orang.
+Dan masing-masing dari 25 orang itu ajak 5 orang lagi. Level 3: 125 orang.
 
-Yang menarik adalah: Anda hanya perlu secara pribadi mengajak 5 orang. Sisanya tumbuh dari duplikasi sistem.
+Total? 155 ORANG di jaringan Anda.
 
-Inilah kekuatan networking — bukan kerja keras sendirian, tapi kerja cerdas bersama tim.
+Tapi ingat: Anda secara pribadi HANYA perlu bicara ke 5 orang. Sisanya? Duplikasi. Sistem yang bekerja untuk Anda.
 
-Endpoint-nya jelas: 5-5-5. Setelah struktur ini terbentuk, penghasilan pasif Anda mulai berjalan.
+Coba pikir: siapa 5 orang di hidup Anda yang mungkin juga ingin punya penghasilan tambahan? Teman kantor? Tetangga? Mantan rekan kuliah? Saudara?
 
-Di video berikutnya, saya akan jelaskan dari mana saja sumber penghasilan Anda dalam sistem ini."
+Hanya 5. Itu tugas Anda. Sisanya, biar sistem yang bicara.
+
+'Oke, jaringannya jelas. Tapi duitnya dari mana?'
+
+PERTANYAAN BAGUS. Dan jawabannya ada di video ketiga. Saya akan bongkar 4 sumber penghasilan yang akan mengalir ke rekening Anda. Jangan kemana-mana!"
 
 ---
 
-## VIDEO 3: 4 SUMBER PASSIVE INCOME
+## VIDEO 3: 4 SUMBER UANG MENGALIR KE REKENING ANDA (INI YANG BIKIN ORANG KAGET)
 **File Visual:** 3.png 
 **Durasi:** ~2:30 - 3:00 menit
 
 ### SCRIPT:
 
-"Sekarang kita masuk ke bagian yang paling ditunggu — dari mana uangnya?
+"Video ketiga. Di sinilah semua mulai masuk akal.
 
-Dalam sistem ini, ada 4 sumber penghasilan yang bisa Anda dapatkan:
+Kebanyakan orang punya SATU sumber penghasilan: gaji. Kalau dipecat? Habis. Kalau sakit? Nol.
 
-**Pertama: Produksi Pribadi.**
-Ini adalah penghasilan dari aktivitas Anda sendiri. Setiap produk yang Anda gunakan atau jual secara langsung menghasilkan komisi untuk Anda. Ini adalah pondasi awal penghasilan Anda.
+Sekarang bayangkan kalau Anda punya EMPAT sumber penghasilan yang berjalan BERSAMAAN. Kebayang kan bedanya?
 
-**Kedua: Bonus Unit.**
-Ketika 5 orang di level pertama Anda aktif dan produktif, Anda mendapatkan bonus unit. Ini adalah bonus dari performa tim langsung Anda.
+Ini dia 4 aliran uang dalam sistem ini:
 
-**Ketiga: Bonus Group.**
-Ini lebih besar lagi. Ketika jaringan di bawah Anda — level 2 dan level 3 — juga aktif, Anda mendapatkan bonus group. Penghasilan ini datang dari volume seluruh grup Anda.
+**PERTAMA: Produksi Pribadi.**
+Ini langkah pertama. Anda pakai produknya, Anda dapat komisi. Sesederhana itu. Tidak perlu jago jualan. Tidak perlu ketuk pintu rumah orang.
 
-**Keempat: Bonus Generasi.**
-Ini adalah level tertinggi. Ketika Anda sudah memiliki leader-leader di jaringan Anda yang juga membangun grup mereka sendiri, Anda mendapatkan bonus generasi. Ini benar-benar passive income — penghasilan yang terus mengalir bahkan saat Anda tidak aktif bekerja.
+**KEDUA: Bonus Unit.**
+5 orang di level 1 Anda aktif? Selamat, bonus unit masuk. Ini reward karena Anda sudah membangun tim kecil yang solid.
 
-Jadi bayangkan: 4 aliran penghasilan, dari satu sistem yang sama.
+**KETIGA: Bonus Group.**
+Nah, ini mulai seru. Ketika 25 orang di level 2 dan 125 orang di level 3 juga bergerak... bonus group Anda MELEDAK. Ini uang yang datang dari aktivitas ratusan orang di jaringan Anda.
 
-Di video selanjutnya, saya akan tunjukkan proyeksi penghasilan yang bisa Anda capai."
+**KEEMPAT: Bonus Generasi.**
+Yang ini? Ini level sultan. Ketika orang-orang di jaringan Anda juga jadi leader dan punya tim sendiri... Anda tetap dapat bagian. TANPA kerja lagi. Ini benar-benar passive income. Uang masuk saat Anda tidur, saat Anda liburan, saat Anda tidak melakukan apa-apa.
+
+4 aliran. 1 sistem. Dan semua dimulai dari 5 orang.
+
+Tapi... berapa sih angkanya? Ratusan ribu? Jutaan? Puluhan juta?
+
+Saya bongkar proyeksi penghasilannya di video keempat. Dan percaya saya, angkanya mungkin akan membuat Anda berpikir ulang tentang pekerjaan Anda sekarang."
 
 ---
 
-## VIDEO 4: PROYEKSI PENGHASILAN & PASSIVE INCOME
+## VIDEO 4: SEGINI PENGHASILAN YANG BISA ANDA DAPAT (SIMULASI NYATA)
 **File Visual:** 4.png 
 **Durasi:** ~2:30 - 3:00 menit
 
 ### SCRIPT:
 
-"Mari kita bicara angka.
+"Oke. Ini video yang paling banyak ditanya: BERAPA penghasilannya?
 
-Dengan sistem 5-5-5 yang sudah saya jelaskan, berikut proyeksi penghasilan yang realistis:
+Saya tidak akan kasih angka mengawang-awang. Saya tunjukkan logikanya:
 
-Dari produksi pribadi, Anda bisa mendapatkan penghasilan dasar setiap bulan dari produk yang Anda konsumsi sendiri atau jual ke pelanggan.
+Dari produksi pribadi: Anda sudah dapat penghasilan dasar setiap bulan. Anggap ini uang jajan tambahan.
 
-Dari bonus unit — dengan 5 orang aktif di level 1 — penghasilan Anda sudah mulai berlipat.
+Dari bonus unit: 5 orang aktif di level 1? Penghasilan Anda BERLIPAT. Bukan nambah sedikit, tapi berlipat.
 
-Dari bonus group — ketika 155 orang di jaringan Anda aktif — penghasilan bulanan Anda bisa mencapai angka yang sangat signifikan.
+Dari bonus group: 155 orang di jaringan Anda aktif? Di sinilah angkanya jadi SERIUS. Ini bukan lagi uang tambahan, ini bisa jadi penghasilan utama Anda.
 
-Dan dari bonus generasi — inilah yang membuat bisnis ini berbeda dari pekerjaan biasa. Penghasilan terus berjalan karena Anda sudah membangun aset, bukan sekadar bekerja.
+Dari bonus generasi: Ini... ini yang bikin orang quit dari kerjaan 9-to-5 mereka. Karena uangnya datang TERUS. Bahkan saat Anda berhenti kerja aktif. Bayangkan: bangun pagi tanpa alarm, cek HP, dan lihat transferan masuk.
 
-Yang paling penting: ini bukan skema cepat kaya. Ini butuh kerja di awal — mengajak 5 orang, membimbing mereka, membangun tim. Tapi setelah sistem berjalan, penghasilan Anda menjadi pasif.
+'Tapi kan ini butuh kerja keras di awal?'
 
-Anda tidak dibayar berdasarkan waktu yang Anda habiskan. Anda dibayar berdasarkan sistem yang Anda bangun.
+YA. Tentu saja. Tidak ada yang instan di dunia ini. Anda perlu ajak 5 orang. Anda perlu bimbing mereka. Anda perlu konsisten di 3-6 bulan pertama.
 
-Ini adalah perbedaan fundamental antara pekerja dan pemilik bisnis.
+TAPI setelah sistemnya berjalan? Anda sudah membangun ASET. Bukan kerja harian. ASET. Seperti punya gedung kos yang uangnya masuk tiap bulan tanpa Anda harus ngepel lantai sendiri.
 
-Di video terakhir, saya akan jelaskan bagaimana Anda bisa memulai dan apa posisi akhir yang bisa Anda capai."
+Ini bedanya pekerja dan pemilik bisnis: Pekerja dibayar per JAM. Pemilik bisnis dibayar per SISTEM yang dibangun.
+
+Anda mau yang mana?
+
+Kalau jawaban Anda adalah yang kedua, video terakhir ini WAJIB Anda tonton. Di sana saya jelaskan posisi akhir Anda, dan bagaimana cara mulai HARI INI."
 
 ---
 
-## VIDEO 5: PENUTUP — MENJADI CO-FOUNDER & LANGKAH SELANJUTNYA
+## VIDEO 5: INI POSISI AKHIR ANDA (DAN CARA MULAI SEKARANG JUGA)
 **File Visual:** 5.png 
 **Durasi:** ~2:30 - 3:00 menit
 
 ### SCRIPT:
 
-"Kita sudah sampai di video terakhir.
+"Anda sudah sampai di video terakhir. Dan itu artinya satu hal: Anda bukan orang biasa.
 
-Mari saya rangkum apa yang sudah kita bahas:
+Kebanyakan orang berhenti di video pertama. Mereka scroll. Mereka ragu. Mereka bilang 'nanti dulu.'
 
-1. Konsep bisnis networking dengan sistem 5-5-5
-2. Struktur jaringan yang jelas dengan endpoint yang terukur
-3. 4 sumber penghasilan: produksi pribadi, unit, group, dan generasi
-4. Proyeksi passive income yang realistis dan berkelanjutan
+Tapi Anda? Anda masih di sini. Itu sudah membuktikan Anda punya mentalitas yang berbeda.
 
-Sekarang pertanyaannya: apa posisi akhir Anda dalam bisnis ini?
+Sekarang, mari saya tunjukkan gambaran besarnya:
 
-Jawabannya: Anda bukan sekadar anggota. Anda adalah co-founder. Anda adalah pemilik bisnis.
+Anda bukan ANGGOTA. Anda bukan BAWAHAN siapa-siapa.
 
-Ketika jaringan Anda sudah terbangun dan sistem berjalan, Anda memiliki aset bisnis yang menghasilkan penghasilan pasif — sama seperti pemilik franchise atau investor.
+Posisi akhir Anda di sistem ini adalah: CO-FOUNDER. Pemilik bisnis.
 
-Bedanya? Modal awal Anda jauh lebih kecil. Risikonya lebih rendah. Dan Anda tidak perlu melakukannya sendirian — ada sistem, ada mentor, ada tim.
+Anda punya jaringan 155 orang. Anda punya 4 sumber penghasilan. Anda punya sistem yang bekerja 24 jam untuk Anda. Tanpa perlu sewa kantor. Tanpa perlu gaji karyawan. Tanpa perlu modal ratusan juta.
 
-Jadi, jika Anda tertarik untuk:
-- Memiliki penghasilan tambahan
-- Membangun passive income jangka panjang
-- Menjadi pemilik bisnis, bukan sekadar pekerja
+Sekarang bandingkan:
+- Buka franchise? Modal ratusan juta, belum tentu balik modal 2 tahun.
+- Investasi saham? Butuh ilmu tinggi dan modal besar.
+- Kerja kantoran? Gaji mentok, karir terbatas.
 
-Maka inilah saatnya untuk mengambil langkah.
+Atau... Anda mulai dari sini. Modal kecil. Risiko rendah. Tapi potensi penghasilan? TIDAK TERBATAS.
 
-Hubungi orang yang membagikan video ini kepada Anda. Tanyakan bagaimana cara memulai.
+Jadi pertanyaannya sekarang bukan 'apakah ini berhasil?' Pertanyaannya adalah: 'Kapan Anda mulai?'
 
-Terima kasih sudah menonton seluruh playlist ini. Saya harap informasi ini bermanfaat untuk Anda.
+Orang yang membagikan video ini kepada Anda sudah memulai. Mereka sudah selangkah di depan.
 
-Sampai jumpa di perjalanan bisnis kita bersama."
+Hubungi mereka. Sekarang. Tanyakan bagaimana cara bergabung. Jangan tunda sampai besok, karena besok Anda akan sibuk lagi dengan rutinitas yang sama.
+
+Ambil langkah pertama HARI INI.
+
+Terima kasih sudah menonton. Saya tunggu Anda di tim."
 
 ---
 
@@ -161,17 +181,19 @@ Sampai jumpa di perjalanan bisnis kita bersama."
 
 | Video | File Visual | Durasi Target | Topik Utama |
 |-------|------------|---------------|-------------|
-| 1 | 1.png | 2:30-3:00 | Pembukaan & perkenalan konsep |
-| 2 | 2.png | 2:30-3:00 | Sistem 5-5-5 |
-| 3 | 3.png | 2:30-3:00 | 4 sumber passive income |
-| 4 | 4.png | 2:30-3:00 | Proyeksi penghasilan |
-| 5 | 5.png | 2:30-3:00 | Penutup & call to action |
+| 1 | 1.png | 2:30-3:00 | Hook kuat & perkenalan konsep (rasa penasaran) |
+| 2 | 2.png | 2:30-3:00 | Sistem 5-5-5 (keajaiban duplikasi) |
+| 3 | 3.png | 2:30-3:00 | 4 sumber passive income (bongkar aliran uang) |
+| 4 | 4.png | 2:30-3:00 | Proyeksi penghasilan (simulasi nyata) |
+| 5 | 5.png | 2:30-3:00 | Penutup, posisi co-founder & call to action |
 
 **Total durasi playlist:** 12-15 menit
 
 **Tips produksi:**
 - Gunakan masing-masing gambar sebagai visual statis atau dengan sedikit animasi (zoom in/out, pan)
-- Tambahkan background music yang profesional dan tidak mengganggu
-- Narasi bisa direkam sebagai voiceover
-- Tambahkan text overlay untuk poin-poin penting
-- Pastikan end screen di setiap video mengarahkan ke video berikutnya dalam playlist
+- Tambahkan background music yang energik dan membangun urgensi
+- Narasi direkam sebagai voiceover dengan intonasi dinamis (bukan monoton)
+- Tambahkan text overlay untuk poin-poin penting dan angka-angka kunci
+- Gunakan sound effect subtle untuk penekanan (whoosh, ding)
+- Pastikan end screen di setiap video mengarahkan ke video berikutnya dengan teks "TONTON SEKARANG"
+- Tambahkan countdown atau teaser 3 detik di akhir setiap video untuk memancing klik ke video selanjutnya
